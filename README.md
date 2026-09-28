@@ -1,0 +1,2 @@
+# premium-japanese-garden-001-japanese-garden-design-rock
+Struggling to translate your vision of a tranquil Japanese rock garden into a tangible layout? The Japanese Garden Design &amp; Rock Place Craft Studio gives you the structured creative space to map out every stone, gravel pattern, and mossy path before you lift a single boulder.  This Notion template solves the challenge of designing a harmonious Japa
